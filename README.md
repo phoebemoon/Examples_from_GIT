@@ -1,2 +1,2 @@
 # Examples_from_GIT
-not mine. saved to future referral
+not mine. saved for future referral
